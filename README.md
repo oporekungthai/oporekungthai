@@ -1,3 +1,3 @@
 ### Yo Yo Yo its hump day! 👋
 
-`it's opore there, a guy who likes in robotic and Ai!`
+**`High schooler (3d Modeler,3d Cadder,Rookie Programmer)`**
