@@ -1,3 +1,3 @@
-### Yo Yo Yo its hump day! 👋
+### Yo its opore here! 👋
 
-**`High school student (3d Modeler/3d Cadder/Rookie Programmer)`**
+**I love creating 3d models, either its a mechanical cad design or game development. I also do a bit of coding, mostly just control mechanical stuff to work.`**
